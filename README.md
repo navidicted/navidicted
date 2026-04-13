@@ -1,2 +1,3 @@
 Close the world 
-                  open the nExt
+
+open the nExt
