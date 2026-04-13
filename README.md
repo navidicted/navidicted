@@ -1,1 +1,2 @@
-Close the world ɟxƎn ɘ⑁ɟ nɘqo
+Close the world 
+                  open the nExt
